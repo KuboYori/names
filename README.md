@@ -7,9 +7,7 @@ This is completely optional, you are not required to actually do it.
 Here is the list of names that I am currently considering to use:
 (Thay are on no particular order.)
 
-Valentina*
+Valentina
 Violet
-Sophia / Sofia*
+Sophia / Sofia
 Victoria
-
-* = current favourites
