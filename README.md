@@ -5,10 +5,10 @@ I'm currently trying to figure out my new name. If you want to help me in the pr
 Here is the list of names that I am currently considering to use:
 
 
-Valentina
+-Valentina
 
-Violet
+-Violet
 
-Sophia / Sofia
+-Sophia / Sofia
 
-Victoria
+-Victoria
