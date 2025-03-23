@@ -8,6 +8,9 @@ Here is the list of names that I am currently considering to use:
 (Thay are on no particular order.)
 
 Valentina
+
 Violet
+
 Sophia / Sofia
+
 Victoria
